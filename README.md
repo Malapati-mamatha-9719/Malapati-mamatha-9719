@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding.
 - 🌱 I’m currently learning Java and Python language.
 - 💞️ I’m looking to collaborate on HTML CSS JS codes.
-- 📫 How to reach me 24b01a0586@svecw.edu.in
+- 📫 How to reach me malapatimamatha123@gmail.com
 - 😄 Pronouns: she
 - ⚡ Fun fact: jaw-dropping
 
